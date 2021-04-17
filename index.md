@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+title: "Adult Content"
 ---
 
-I'm glad you are here. I plan to talk about ...
+Warning this is an adult blog you must be at least 18 to enter!!
